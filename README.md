@@ -1,0 +1,1 @@
+# virtual-ppet-master-1
